@@ -1,2 +1,2 @@
 # Annbridget-
-Hello world, this is my profile
+Telling data narratives by unlocking the power of data to propel business growth.
